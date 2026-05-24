@@ -20,6 +20,6 @@ I am...
 
 ⟡ sensitive
 
-⟡ in the hospital (atm)
+⟡ cool
 
 IM TOO LAZY TO WRITE MORE AHHHH CHECK MY LINKS!..
