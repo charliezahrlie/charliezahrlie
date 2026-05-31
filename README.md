@@ -1,1 +1,1 @@
-distancing myself from people who ignore me, and i block freely.
+don't mention your sexual partner please, i get insecure in a really personal way.
