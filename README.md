@@ -1,4 +1,4 @@
-don't mention your sexual partner please, i get insecure in a really personal way.
+ALERT : don't mention your sexual partner please, i get insecure in a really personal way. or else i'll get emotional the whole day,,
 
 
 2p mafioso as pony = regress
