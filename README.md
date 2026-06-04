@@ -1,6 +1,6 @@
 ˙ . ꒷ 🍰 . 𖦹˙— charlie's readme.md ᛝ Ი︵𐑼 ₊⊹
 
-⋆｡‧˚ʚ🍓ɞ˚‧｡⋆ this is 4 ponytown ,, blocking people outside of ponytown
+⋆｡‧˚ʚ🍓ɞ˚‧｡⋆ this is 4 ponytown ,, blocking people outside of ponytown (banned in ponytown HELPP)
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
