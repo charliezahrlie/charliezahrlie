@@ -16,9 +16,9 @@ info 🪽 ;; i love soft and fuzzy stuff, specifically stuff that tickle my brai
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-ALERT : don't mention your sexual partner please, i get insecure in a really personal way. or else i'll get emotional the whole day,,
+ALERT ⚠︎ : don't mention your sexual partner please, i get insecure in a really personal way. or else i'll get emotional the whole day,,
 
-ALERT 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i DO , as i did ALOT of research/tests/information on myself . little trauma dump warn;; my family REFUSES to take me to a doctor to see my conditions (@bus1v3,strict smh) , please don't take this to offense as i'm still a child (NOT VICTIM BLAMING) and immature (NOT VICTIM BLAMING) as i might not have ADHD , it just makes sense to me in my point of view .
+ALERT ⚠︎ 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i DO , as i did ALOT of research/tests/information on myself . little trauma dump warn;; my family REFUSES to take me to a doctor to see my conditions (@bus1v3,strict smh) , please don't take this to offense as i'm still a child (NOT VICTIM BLAMING) and immature (NOT VICTIM BLAMING) as i might not have ADHD , it just makes sense to me in my point of view .
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
@@ -30,7 +30,7 @@ ALERT 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i DO , a
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-𓂃- ,, yumeships { DOUBLES DNI , NON-SHARE } ⟢ ༄.°
+𓂃- ,, yumeships { DOUBLES DNI , NON-SHARE } ⟢ ༄.° (DISCLAIMER: i know some of these characters are a fucking adult, leave me alone)
 
 ˚˖𓍢ִ໋🦢˚ L Lawliet ✧ ( sweetdeduct )
 
@@ -39,3 +39,17 @@ ALERT 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i DO , a
 ˚.💻⋆ 007n7 ( bunnygui )
 
 ִֶָ. ..𓂃 ࣪ ִֶָ🔪་༘࿐two time ( secondpainting )
+
+.𖥔 ݁ ˖🍦── .✦ itrapped ( lovelytraitor )
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+
+𐔌   .  ⋮ kins  .ᐟ  ֹ   ₊ ꒱ (DISCLAIMER: i know these characters are messed up, sorry for relating to them i guess)
+
+🪽 : broken spawn
+
+🪙 : chance
+
+🍕 : pizza guy ( heavy kin )
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
