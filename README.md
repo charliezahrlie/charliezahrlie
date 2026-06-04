@@ -6,9 +6,9 @@
 
 aboutme/introduction(?) ;; hey, i go by charlie, mark, sivas. i'm at the underage of 18. i would say i am a calm or nice person unless you (trigger,bully,etcidk) me/oomf.
 
-i'm a... drum roll please; pet regressor, specifically a bunny regressor. and yes i love carrots, but i'm not gonna rub it in people's faces.
+i'm a... drum roll please; pet regressor, specifically a  (🐇) bunny regressor. and yes i love carrots, but i'm not gonna rub it in people's faces.
 
-my hobby(ies) ;; art (paint,color,draw,sketch,etc) , gaming 24/7 , reading (dowk,dd,tsitp/inswy/wahs,etc,mangas) , watching animes/series , playing instruments (🎻,🎹) , singing or just l2music (kpop/pop,rock,etc)
+my hobby(ies) ;; ( favorite hobby -> art (paint,color,draw,sketch,etc) ) , ( favorite hobby -> gaming 24/7 ) , reading (dowk,dd,tsitp/inswy/wahs,etc,mangas) , watching animes/series , playing instruments (🎻,🎹) , singing or just l2music (kpop/pop,rock,etc)
 
 ﹌﹌﹌﹌﹌
 
