@@ -58,7 +58,7 @@ ALERT ⚠︎ 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-°˖➴ TW : SELF HARM!!! ⭑ DON'T SCROLL IF UR SENSITIVE TO MENTIONS OF HARM/SH PLEASE!!!
+°˖➴ TW : SELF HARM AND A BIT TRAUMA DUMP??!!! ⭑ DON'T SCROLL IF UR SENSITIVE TO MENTIONS OF HARM/SH PLEASE!!!
 
 ⚠︎
 
@@ -74,4 +74,7 @@ ALERT ⚠︎ 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i
 
 .
 
-test
+.
+
+
+꒰ when i regress, i bite myself really hardly until i bleed to comfort myself. i can't help it to think i deserve it. i hate myself. why do i hate myself? because people keep mentioning their FUCKING PARTNER! please don't, yes: i'm supportive of your relationship, but i can't help thinking about my own situation. yes, my whole 'situation' is okay, just a bit complicated. i mean it when i say i'll get emotional the whole day. please respect me and think what you wanna say before you actually say it. please think about my reactions very closely. ꒱
