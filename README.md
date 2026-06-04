@@ -12,7 +12,7 @@ my hobby(ies) ;; ( favorite hobby -> art (paint,color,draw,sketch,etc) ) , ( fav
 
 friends i TRUST ! ;; divine , ... no literally that's it, i'm sorry if your name isn't on here.
 
-info ;; i love soft and fuzzy stuff, specifically stuff that tickle my brain and satisfies me and comforts me. i'm not exactly into the cutecore style by looks, but i adore objects that follow it.
+info 🪽 ;; i love soft and fuzzy stuff, specifically stuff that tickle my brain and satisfies me and comforts me. i'm not exactly into the cutecore style by looks, but i adore objects that follow it. i also love candy, cake, sweet stuff <3
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
