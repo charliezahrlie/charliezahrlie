@@ -62,9 +62,16 @@ ALERT ⚠︎ 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i
 
 ⚠︎
 
+.
 
+.
 
+.
 
+ֶָ֢ ֶ. 
 
+.
 
-ֶָ֢ ֶ.  wip
+.
+
+test
