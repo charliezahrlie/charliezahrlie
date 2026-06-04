@@ -10,9 +10,15 @@ i'm a... drum roll please; pet regressor, specifically a  (🐇) bunny regressor
 
 my hobby(ies) ;; ( favorite hobby -> art (paint,color,draw,sketch,etc) ) , ( favorite hobby -> gaming 24/7 ) , reading (dowk,dd,tsitp/inswy/wahs,etc,mangas) , watching animes/series , playing instruments (🎻,🎹) , singing or just l2music (kpop/pop,rock,etc)
 
+friends i TRUST ! ;; divine , ... no literally that's it, i'm sorry if your name isn't on here.
+
+info ;; i love soft and fuzzy stuff, specifically stuff that tickle my brain and satisfies me and comforts me. i'm not exactly into the cutecore style by looks, but i adore objects that follow it.
+
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 ALERT : don't mention your sexual partner please, i get insecure in a really personal way. or else i'll get emotional the whole day,,
+
+ALERT 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i DO , as i did ALOT of research/tests/information on myself . little trauma dump warn;; my family REFUSES to take me to a doctor to see my conditions (@bus1v3,strict smh) , please don't take this to offense as i'm still a child (NOT VICTIM BLAMING) and immature (NOT VICTIM BLAMING) as i might not have ADHD , it just makes sense to me in my point of view .
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
