@@ -14,6 +14,8 @@
 
 ⊹ ࣪ ˖ 🌙 ⟢ info 🪽 ᶻ 𝗓 𐰁 ;; i love soft and fuzzy stuff, specifically stuff that tickle my brain and satisfies me and comforts me. i'm not exactly into the cutecore style by looks, but i adore objects that follow it. i also love candy, cake, sweet stuff <3
 
+phobias ;; 🕷️ (arachnophobia) , 🔫 (hoblophobia)
+
 𓃠
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
@@ -52,6 +54,17 @@ ALERT ⚠︎ 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i
 
 🪙 : chance
 
-🍕 : pizza guy ( heavy kin )
+🍕 : pizza guy ( heavy kin ) ( ha, ironic isn't it? )
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+
+°˖➴ TW : SELF HARM!!! ⭑ DON'T SCROLL IF UR SENSITIVE TO MENTIONS OF HARM/SH PLEASE!!!
+
+⚠︎
+
+
+
+
+
+
+ֶָ֢ ֶ.  wip
