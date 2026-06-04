@@ -8,6 +8,8 @@ aboutme/introduction(?) ;; hey, i go by charlie, mark, sivas. i'm at the underag
 
 i'm a... drum roll please; pet regressor, specifically a bunny regressor. and yes i love carrots, but i'm not gonna rub it in people's faces.
 
+my hobby(ies) ;; art (paint,color,draw,sketch,etc) , gaming 24/7 , reading (dowk,dd,tsitp/inswy/wahs,etc,mangas) , watching animes/series , playing instruments (🎻,🎹) , singing or just l2music (kpop/pop,rock,etc)
+
 ﹌﹌﹌﹌﹌
 
 ALERT : don't mention your sexual partner please, i get insecure in a really personal way. or else i'll get emotional the whole day,,
