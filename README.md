@@ -4,15 +4,17 @@
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-🍫 aboutme/introduction (?) ;; hey, i go by charlie, mark, sivas. i'm at the underage of 18. i would say i am a calm or nice person unless you (trigger,bully,etcidk) me/oomf.
+⊹ ࣪ ˖ {{ 🍫 }} ⟢ aboutme/introduction (?) ᶻ 𝗓 𐰁 ;; hey, i go by 𓏲 charlie, 𓏲 mark, 𓏲 sivas. i'm at the 𓏲 underage of 18. i would say i am a calm or nice person unless you (trigger,bully,etcidk) me/oomf.ᐟ
 
-i'm a... drum roll please; pet regressor, specifically a  (🐇) bunny regressor. and yes i love carrots, but i'm not gonna rub it in people's faces.
+⊹ ࣪ ˖ ⟢ i'm a... drum roll please; 𓏲 pet regressor, specifically a  (🐇) bunny regressor. and yes i love carrots, but i'm not gonna rub it in people's faces.ᐟ
 
-💤 my hobby(ies) ;; ( favorite hobby -> art (paint,color,draw,sketch,etc) ) , ( favorite hobby -> gaming 24/7 ) , reading (dowk,dd,tsitp/inswy/wahs,etc,mangas) , watching animes/series , playing instruments (🎻,🎹) , singing or just l2music (kpop/pop,rock,etc)
+⊹ ࣪ ˖ 💤 ⟢ my hobby(ies) ᶻ 𝗓 𐰁 ;; ( favorite hobby -> art (paint,color,draw,sketch,etc) ) , ( favorite hobby -> gaming 24/7 ) , reading (dowk,dd,tsitp/inswy/wahs,etc,mangas) , watching animes/series , playing instruments (🎻,🎹) , singing or just l2music (kpop/pop,rock,etc).ᐟ
 
-🖤 friends i TRUST ! ;; divine , ... no literally that's it, i'm sorry if your name isn't on here.
+⊹ ࣪ ˖ 🖤 ⟢ friends i TRUST ! (,,>﹏<,,)  ᶻ 𝗓 𐰁 ;; 𓏲 divine ʚɞ ... no literally that's it, i'm sorry if your name isn't on here .ᐟ
 
-🌙 info 🪽 ;; i love soft and fuzzy stuff, specifically stuff that tickle my brain and satisfies me and comforts me. i'm not exactly into the cutecore style by looks, but i adore objects that follow it. i also love candy, cake, sweet stuff <3
+⊹ ࣪ ˖ 🌙 ⟢ info 🪽 ᶻ 𝗓 𐰁 ;; i love soft and fuzzy stuff, specifically stuff that tickle my brain and satisfies me and comforts me. i'm not exactly into the cutecore style by looks, but i adore objects that follow it. i also love candy, cake, sweet stuff <3
+
+𓃠
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
