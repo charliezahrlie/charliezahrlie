@@ -38,7 +38,7 @@ strawberry, nina4ever, my gr00m3r who got me banned 4 years ago <3, etc people w
 
 yume-doubles (it's quite weird to like the same person, isn't it? it's basically cheating on your yume.)
 
-hazbin hotel (HH) and helluva boss (HB) fandoms or *vivienne supporters*. i like the show, but i refuse to associate myself with that fandom due to the rumors going around PLUS i'm islam (yeah well shit, i know i'm LGBTQ+, but i've already made my decision long before you wanna come at me for this)
+hazbin hotel (HH) and helluva boss (HB) fandoms or *vivienne supporters*. i like the show, but i refuse to associate myself with that fandom due to the rumors going around PLUS i'm islam (yeah well shit, i know i'm LGBTQ+, but i've already made my decision long before you wanna come at me for this, basically: all you need to know i'm just really uncomfortable watching a show that has p04n and sex, hell/demons in IT, considering i'm still a child)
 
 islamophobe (wooahhh who would've guessed i'm islamic, ontop of that, i'm pretty religious too. suck it, losers)
 
