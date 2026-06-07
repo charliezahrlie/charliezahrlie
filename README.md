@@ -106,9 +106,9 @@ ALERT ⚠︎ 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i
 
 🪙 : chance
 
-🍕 : pizza guy ( heavy kin ) ( ha, ironic isn't it? )
+🍕 : pizza guy ( heavy-kin ) ( ha, ironic isn't it? )
 
-⚽️ : itoshi rin
+⚽️ : itoshi rin ( heavy-kin )
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
