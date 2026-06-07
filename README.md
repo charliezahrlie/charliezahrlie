@@ -1,6 +1,18 @@
 ˙ . ꒷ 🍰 . 𖦹˙— charlie's readme.md ᛝ Ი︵𐑼 ₊⊹
 
-⋆｡‧˚ʚ🍓ɞ˚‧｡⋆ this is 4 ponytown ,, blocking people outside of ponytown (banned in ponytown HELPP)
+⋆｡‧˚ʚ🍓ɞ˚‧｡⋆ this is 4 ponytown ,, blocking people outside of ponytown (banned in ponytown)
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+
+background character is me lmao, my friends have someone better.
+
+Z's the one to change that <3
+
+small info ;; learning japanese hehe i'm so proud of myself!: >:3
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+
+7th of june, 2026 edit;; discord: ( d4rksk1ess. )
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
