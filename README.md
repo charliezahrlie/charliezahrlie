@@ -1,6 +1,6 @@
-˙ . ꒷ 🍰 . 𖦹˙— charlie's readme.md ᛝ Ი︵𐑼 ₊⊹
+˙ . ꒷ 💻 . 𖦹˙— charlie's readme.md ᛝ Ი︵𐑼 ₊⊹
 
-⋆｡‧˚ʚ🍓ɞ˚‧｡⋆ this is 4 ponytown ,, blocking people outside of ponytown (banned in ponytown)
+⋆｡‧˚ʚ⚽️ɞ˚‧｡⋆ this is 4 ponytown ,, blocking people outside of ponytown (banned in ponytown)
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
@@ -18,7 +18,7 @@ small info ;; learning japanese hehe i'm so proud of myself!: >:3
 
 wdn = watching death note , l2(musicname)/music = listening to (music)
 
-⊹ ࣪ ˖ {{ 🍫 }} ⟢ aboutme/introduction (?) ᶻ 𝗓 𐰁 ;; hey, i go by 𓏲 charlie, 𓏲 mark, 𓏲 sivas. i'm at the 𓏲 underage of 18. i would say i am a calm or nice person unless you (trigger,bully,etcidk) me/oomf.ᐟ
+⊹ ࣪ ˖ {{ 🍦 }} ⟢ aboutme/introduction (?) ᶻ 𝗓 𐰁 ;; hey, i go by 𓏲 charlie, 𓏲 mark, 𓏲 sivas. i'm at the 𓏲 underage of 18. i would say i am a calm or nice person unless you (trigger,bully,etcidk) me/oomf.ᐟ
 
 ⊹ ࣪ ˖ ⟢ i'm a... drum roll please; 𓏲 pet regressor, specifically a  (🐇) bunny regressor. and yes i love carrots, but i'm not gonna rub it in people's faces.ᐟ
 
@@ -26,7 +26,7 @@ wdn = watching death note , l2(musicname)/music = listening to (music)
 
 ⊹ ࣪ ˖ 🖤 ⟢ friends i TRUST ! (,,>﹏<,,)  ᶻ 𝗓 𐰁 ;; 𓏲 divine ʚɞ ... no literally that's it, i'm sorry if your name isn't on here .ᐟ
 
-⊹ ࣪ ˖ 🌙 ⟢ info 🪽 ᶻ 𝗓 𐰁 ;; i love soft and fuzzy stuff, specifically stuff that tickle my brain and satisfies me and comforts me. i'm not exactly into the cutecore style by looks, but i adore objects that follow it. i also love candy, cake, sweet stuff <3
+⊹ ࣪ ˖ 🖤 ⟢ info 🪽 ᶻ 𝗓 𐰁 ;; i love soft and fuzzy stuff, specifically stuff that tickle my brain and satisfies me and comforts me. i'm not exactly into the cutecore style by looks, but i adore objects that follow it. i also love candy, cake, sweet stuff <3
 
 phobias ;; 🕷️ (arachnophobia) , 🔫 (hoblophobia)
 
@@ -69,6 +69,8 @@ ALERT ⚠︎ 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i
 🪙 : chance
 
 🍕 : pizza guy ( heavy kin ) ( ha, ironic isn't it? )
+
+⚽️ : itoshi rin
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
