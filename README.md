@@ -8,6 +8,8 @@ background character is me lmao, my friends have someone better.
 
 Z's the one to change that <3
 
+now i'm changing some rules here, i don't care if you're one of my friends in ponytown. but whether or not you're gonna have the SLIGHTEST sassy/rude/mean/sarcastic personality/attitude in another platform other than pt (cus obv i'm banned now), i won't hesitate to distance from you and block you.
+
 small info ;; learning japanese hehe i'm so proud of myself!: >:3
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
