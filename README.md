@@ -28,9 +28,11 @@ hiro/yuri (i don't know why, but @AM-hvykin doesn't like them. so please get off
 
 @ReNighted (ren) ;; (respectfully, get off my github)
 
-hayden ;; ( @TidalWavesOfBruises please check their document! )
+hayden ;; ( @TidalWavesOfBruiises please check their document, look at company section for their tag! )
 
 @AM-hvykin 's copycat (yeah... i don't know their name, sorry)
+
+strawberry, nina4ever, my gr00m3r who got me banned 4 years ago <3, etc people who's known me in my other accounts, i don't like you guys at all.
 
 »… ? general ⬇️ ¿ …«
 
@@ -46,7 +48,9 @@ ignorant/rude/negative people
 
 character blackwashers or whitewashers (get off pls you're borderline racist)
 
-people who victim-blame, or attention-seek (sorry not sorry. newsflash, i have my own problems too)
+people who victim-blame, or attention-seek TOO much (sorry not sorry. newsflash, i have my own problems too)
+
+people who stereotype alot of shit (or in other words, mischaracterer) , example: ooohhh elliot (WAAPP/FSK) is a FEMBOY! and he's a bottom! holy shit your mischaractising is pissing me off
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
