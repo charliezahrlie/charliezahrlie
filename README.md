@@ -1,5 +1,7 @@
 ˙ . ꒷ 💻 . 𖦹˙— charlie's readme.md ᛝ Ი︵𐑼 ₊⊹
 
+" half-baked runts... " ;; ITOSHI RIN.
+
 ⋆｡‧˚ʚ⚽️ɞ˚‧｡⋆ this is 4 ponytown ,, blocking people outside of ponytown (banned in ponytown)
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
@@ -8,13 +10,43 @@ background character is me lmao, my friends have someone better.
 
 Z's the one to change that <3
 
-now i'm changing some rules here, i don't care if you're one of my friends in ponytown. but whether or not you're gonna have the SLIGHTEST sassy/rude/mean/sarcastic personality/attitude in another platform other than pt (cus obv i'm banned now), i won't hesitate to distance from you and block you.
+now i'm changing some rules here, i don't care if you're one of my friends in ponytown. but whether or not you're gonna have the SLIGHTEST sassy/rude/mean/sarcastic personality/attitude in another platform other than pt (cus obv i'm banned now), i won't hesitate to distance from you and block you. (dni list below)
 
 small info ;; learning japanese hehe i'm so proud of myself!: >:3
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 7th of june, 2026 edit;; discord: ( d4rksk1ess. )
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+
+⚠️ ;; DNI's ,, ( TW;; opinion)
+
+»… ¡ people ⬇️ ! …«
+
+hiro/yuri (i don't know why, but @AM-hvykin doesn't like them. so please get off here)
+
+@ReNighted (ren) ;; (respectfully, get off my github)
+
+hayden ;; ( @TidalWavesOfBruises please check their document! )
+
+@AM-hvykin 's copycat (yeah... i don't know their name, sorry)
+
+»… ? general ⬇️ ¿ …«
+
+yume-doubles (it's quite weird to like the same person, isn't it? it's basically cheating on your yume.)
+
+hazbin hotel (HH) and helluva boss (HB) fandoms or *vivienne supporters*. i like the show, but i refuse to associate myself with that fandom due to the rumors going around PLUS i'm islam (yeah well shit, i know i'm LGBTQ+, but i've already made my decision long before you wanna come at me for this)
+
+islamophobe (wooahhh who would've guessed i'm islamic, ontop of that, i'm pretty religious too. suck it, losers)
+
+homophobics
+
+ignorant/rude/negative people
+
+character blackwashers or whitewashers (get off pls you're borderline racist)
+
+people who victim-blame, or attention-seek (sorry not sorry. newsflash, i have my own problems too)
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
@@ -26,7 +58,7 @@ wdn = watching death note , l2(musicname)/music = listening to (music)
 
 ⊹ ࣪ ˖ 💤 ⟢ my hobby(ies) ᶻ 𝗓 𐰁 ;; ( favorite hobby -> art (paint,color,draw,sketch,etc) ) , ( favorite hobby -> gaming 24/7 ) , reading (dowk,dd,tsitp/inswy/wahs,etc,mangas) , watching animes/series , playing instruments (🎻,🎹) , singing or just l2music (kpop/pop,rock,etc).ᐟ
 
-⊹ ࣪ ˖ 🖤 ⟢ friends i TRUST ! (,,>﹏<,,)  ᶻ 𝗓 𐰁 ;; 𓏲 divine ʚɞ ... no literally that's it, i'm sorry if your name isn't on here .ᐟ
+⊹ ࣪ ˖ 🖤 ⟢ friends i TRUST ! (,,>﹏<,,)  ᶻ 𝗓 𐰁 ;; 𓏲 divine , aie ʚɞ ... no literally that's it, i'm sorry if your name isn't on here .ᐟ
 
 ⊹ ࣪ ˖ 🖤 ⟢ info 🪽 ᶻ 𝗓 𐰁 ;; i love soft and fuzzy stuff, specifically stuff that tickle my brain and satisfies me and comforts me. i'm not exactly into the cutecore style by looks, but i adore objects that follow it. i also love candy, cake, sweet stuff <3
 
