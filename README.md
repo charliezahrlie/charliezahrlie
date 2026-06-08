@@ -98,6 +98,8 @@ ALERT ⚠︎ 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i
 
 .𖥔 ݁ ˖🍦── .✦ itrapped ( lovelytraitor )
 
+˚₊‧꒰ა ✦ ໒꒱ ‧₊˚ shidou ryusei (um no name yet 😱)
+
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 𐔌   .  ⋮ kins  .ᐟ  ֹ   ₊ ꒱ (DISCLAIMER: i know these characters are messed up, sorry for relating to them i guess)
