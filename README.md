@@ -6,7 +6,7 @@
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-info before u read this all: i'm 12, shocking i know
+info before u read this all: i'm 12-13-14, shocking i know
 
 background character is me lmao, my friends have someone better.
 
