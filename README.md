@@ -54,6 +54,8 @@ people who victim-blame, or attention-seek TOO much (sorry not sorry. newsflash,
 
 people who stereotype alot of shit (or in other words, mischaracterer) , example: ooohhh elliot (WAAPP/FSK) is a FEMBOY! and he's a bottom! holy shit your mischaractising is pissing me off
 
+and other basics.
+
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 wdn = watching death note , l2(musicname)/music = listening to (music)
@@ -68,7 +70,9 @@ wdn = watching death note , l2(musicname)/music = listening to (music)
 
 ⊹ ࣪ ˖ 🖤 ⟢ info 🪽 ᶻ 𝗓 𐰁 ;; i love soft and fuzzy stuff, specifically stuff that tickle my brain and satisfies me and comforts me. i'm not exactly into the cutecore style by looks, but i adore objects that follow it. i also love candy, cake, sweet stuff <3
 
-phobias ;; 🕷️ (arachnophobia) , 🔫 (hoblophobia)
+phobias ;; 🕷️ (arachnophobia) , 🔫 (hoblophobia) , 🕳️ trypophobia , claustrophobia
+
+¡ ⊹ . . . !
 
 𓃠
 
@@ -112,7 +116,13 @@ ALERT ⚠︎ 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i
 
 🍕 : pizza guy ( heavy-kin ) ( ha, ironic isn't it? )
 
-⚽️ : itoshi rin ( heavy-kin )
+⚽️ : itoshi rin AND itoshi sae... ( both : heavy-kin )
+
+🪓 : andrew ( heavy-kin )
+
+✍️ : Mikami Teru
+
+🪴 : griefer
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
