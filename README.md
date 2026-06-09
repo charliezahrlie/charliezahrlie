@@ -6,6 +6,10 @@
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
+aie's toe wiggler/nsrs/p 🖤
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+
 info before u read this all: i'm 12-13-14, shocking i know
 
 background character is me lmao, my friends have someone better.
