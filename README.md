@@ -1,6 +1,6 @@
 ˙ . ꒷ 💻 . 𖦹˙— charlie's readme.md ᛝ Ი︵𐑼 ₊⊹
 
-" my rival, my idol, you got me *suicidal*! " /lyrics ( bang bang bang )
+"you poor excuse of a *little brother*..." - ( itoshi sae ⚽ )
 
 ⋆｡‧˚ʚ⚽️ɞ˚‧｡⋆ this is 4 ponytown ,, blocking people outside of ponytown (banned in ponytown)
 
