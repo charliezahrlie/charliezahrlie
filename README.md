@@ -120,6 +120,8 @@ ALERT ⚠︎ 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i
 
 ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚ shidou ryusei (um no name yet 😱)
 
+✧₊⁺🎀⋆.˚୨ৎ itoshi sae (hmhm... self love i guess, no name yet either)
+
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 𐔌   .  ⋮ kins  .ᐟ  ֹ   ₊ ꒱ (DISCLAIMER: i know these characters are messed up, sorry for relating to them i guess)
