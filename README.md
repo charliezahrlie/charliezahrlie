@@ -30,7 +30,7 @@ small info ;; learning japanese hehe i'm so proud of myself!: >:3
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-⚠️ ;; DNI's ,, ( TW;; opinion)
+⚠️ ;; DNI's ,,
 
 »… ¡ people ⬇️ ! …«
 
