@@ -30,11 +30,9 @@ small info ;; learning japanese hehe i'm so proud of myself!: >:3
 
 »… ¡ people ⬇️ ! …«
 
-hiro/yuri (i don't know why, but @AM-hvykin doesn't like them. so please get off here)
-
 @ReNighted (ren) , @d0ombringer / @obscuredobscurities ;; (i don't like both of you, but i hope ya'll calm down)
 
-hayden ;; ( @TidalWavesOfBruiises please check their document, look at company section for their tag! )
+hayden ;; ( @TidalWavesOfBruiises / @TrulySapnap please check their document, look at company section for their tag! )
 
 @AM-hvykin 's copycat (yeah... i don't know their name, sorry)
 
