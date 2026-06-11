@@ -40,6 +40,8 @@ hayden ;; ( @TidalWavesOfBruiises / @TrulySapnap please check their document, lo
 
 strawberry, nina4ever, my gr00m3r who got me banned 4 years ago <3, etc people who's known me in my other accounts, i don't like you guys at all.
 
+![image alt](https://github.com/charliezahrlie/charliezahrlie/blob/91285f03583c4183ec7b37aefa0c39836ad50dbe/IMG_1636.gif)
+
 »… ? general ⬇️ ¿ …«
 
 yume-doubles (it's quite weird to like the same person, isn't it? it's basically cheating on your yume.)
