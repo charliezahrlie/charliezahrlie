@@ -126,6 +126,8 @@ ALERT ⚠︎ 2 : i'm not diagnosed professionally ADHD , i,me,myself would say i
 
 🪴 : griefer
 
+💻 : Loid Forger ( heavy-kin )
+
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 °˖➴ TW : SELF HARM AND A BIT TRAUMA DUMP??!!! ⭑ DON'T SCROLL IF UR SENSITIVE TO MENTIONS OF HARM/SH PLEASE!!!
