@@ -6,7 +6,7 @@
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-aie's toe wiggler/nsrs/p 🖤
+aie's BEST friend haha... flexes on you all... yeah that's right, I (me, haha..) said it. I'M aie's BEST friend... *hugs aie to comfort i hope ur ok @AM-hvykin<3*
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
