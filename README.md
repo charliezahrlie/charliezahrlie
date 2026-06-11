@@ -2,6 +2,8 @@
 
 "you poor excuse of a *little brother*..." - ( itoshi sae ⚽ )
 
+![image alt](https://github.com/charliezahrlie/charliezahrlie/blob/ce128f2180f91634d717e8e03bba88fa306f638c/IMG_1634.gif)
+
 ⋆｡‧˚ʚ⚽️ɞ˚‧｡⋆ this is 4 ponytown ,, blocking people outside of ponytown (banned in ponytown)
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
