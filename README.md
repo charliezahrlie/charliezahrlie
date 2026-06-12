@@ -4,13 +4,14 @@
 
 i apologise for any beef between some people (yuri/hiro,choco,ren) see if ur in the dni list or not, i don't remember who i put and i'm too lazy to update my readme
 
+🎊 OMGOMGOMG IT'S MY BIRTHDAY!!! YAYAAYYAAAYYYAAAAA EVERYONE WISH ME HAPPY BIRTHDAYYY NOWWWWW...!!!/nf.. or not... 🥳🎊
 ![image alt](https://github.com/charliezahrlie/charliezahrlie/blob/ce128f2180f91634d717e8e03bba88fa306f638c/IMG_1634.gif)
 
 ⋆｡‧˚ʚ⚽️ɞ˚‧｡⋆ this is 4 ponytown ,, blocking people outside of ponytown (banned in ponytown)
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-aie's BEST friend haha... flexes on you all... yeah that's right, I (me, haha..) said it. I'M aie's BEST friend... *hugs aie to comfort i hope ur ok @AM-hvykin<3*
+aie's BEST friend haha... flexes on you all... yeah that's right, I (me, haha..) said it. I'M aie's BEST friend... *hugs aie*
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
