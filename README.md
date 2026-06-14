@@ -81,7 +81,7 @@ yuri/hiro, i apologise for thinking wrong about you waaahh!!,,
 
 ⊹ ࣪ ˖ 💤 ⟢ my hobby(ies) ᶻ 𝗓 𐰁 ;; ( favorite hobby -> art (paint,color,draw,sketch,etc) ) , ( favorite hobby -> gaming 24/7 ) , reading (dowk,dd,tsitp/inswy/wahs,etc,mangas) , watching animes/series , playing instruments (🎻,🎹) , singing or just l2music (kpop/pop,rock,etc).ᐟ
 
-⊹ ࣪ ˖ 🖤 ⟢ friends i TRUST ! (,,>﹏<,,)  ᶻ 𝗓 𐰁 ;; 𓏲 divine , aie ʚɞ ... no literally that's it, i'm sorry if your name isn't on here .ᐟ
+⊹ ࣪ ˖ 🖤 ⟢ friends i TRUST ! (,,>﹏<,,)  ᶻ 𝗓 𐰁 ;; 𓏲 hiro , zen/ash , aie ʚɞ ... no literally that's it, i'm sorry if your name isn't on here .ᐟ
 
 ⊹ ࣪ ˖ 🖤 ⟢ info 🪽 ᶻ 𝗓 𐰁 ;; i love soft and fuzzy stuff, specifically stuff that tickle my brain and satisfies me and comforts me. i'm not exactly into the cutecore style by looks, but i adore objects that follow it. i also love candy, cake, sweet stuff <3
 
