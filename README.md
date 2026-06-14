@@ -9,7 +9,7 @@
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-aie's BEST friend haha... flexes on you all... yeah that's right, I (me, haha..) said it. I'M aie's BEST friend... *hugs aie*
+aie's BEST friend haha... flexes on you all... yeah that's right, I (me, haha..) said it. I'M aie's BEST friend... *hugs aie* (i don't think i know flow but thanks for the heads up aie <3)
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
