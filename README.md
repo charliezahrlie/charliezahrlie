@@ -71,8 +71,6 @@ and other basics.
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-yuri/hiro, i apologise for thinking wrong about you waaahh!!,,
-
 ⊹ ࣪ ˖ {{ 🍦 }} ⟢ aboutme/introduction (?) ᶻ 𝗓 𐰁 ;; hey, i go by 𓏲 charlie, 𓏲 mark, 𓏲 sivas. i'm at the 𓏲 underage of 18. i would say i am a calm or nice person unless you (trigger,bully,etcidk) me/oomf.ᐟ
 
 ⊹ ࣪ ˖ ⟢ i'm a... drum roll please; 𓏲 pet regressor, specifically a  (🐇) bunny regressor. and yes i love carrots, but i'm not gonna rub it in people's faces.ᐟ
