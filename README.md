@@ -3,6 +3,8 @@
 "you poor excuse of a *little brother*..." - ( itoshi sae ⚽ )
 
 ⚠️ ; I’m currently having a migraine , from now on. I only trust my gf to talk 2 so this drama doesn’t affect on me anymore, yes, INCLUDING aie and divine (my closest friends to which I rarely talk to more, only my gf) . thank you
+
+update : don't bother to message me for no reason then don't continue the conversation, i have feelings too ASSHOLE! /heavytargetted
 ![image alt](https://github.com/charliezahrlie/charliezahrlie/blob/ce128f2180f91634d717e8e03bba88fa306f638c/IMG_1634.gif)
 
 ⋆｡‧˚ʚ⚽️ɞ˚‧｡⋆ this is 4 ponytown ,, blocking people outside of ponytown (banned in ponytown)
