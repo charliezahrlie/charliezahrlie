@@ -81,7 +81,7 @@ and other basics.
 
 ⊹ ࣪ ˖ 🖤 ⟢ info 🪽 ᶻ 𝗓 𐰁 ;; i love soft and fuzzy stuff, specifically stuff that tickle my brain and satisfies me and comforts me. i'm not exactly into the cutecore style by looks, but i adore objects that follow it. i also love candy, cake, sweet stuff <3
 
-phobias ;; 🕷️ (arachnophobia) , 🔫 (hoblophobia) , 🕳️ trypophobia , claustrophobia
+phobias ;; 🕷️ (arachnophobia) , 🔫 (hoblophobia) , 🕳️ trypophobia , claustrophobia , germophobia
 
 ¡ ⊹ . . . !
 
