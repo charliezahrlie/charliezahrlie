@@ -51,7 +51,7 @@ I'm a sad, pathetic girl
 
 . . . 
 
-pls don't attack me for the song above... and no i'm not attention seeking for this. if u don't know why i'm asking to get jumped: the song talks about being religious but also coping with thoughts (sexual/hypersexual) they (ahem, more specific. MIKU) cannot help but think of (g00ning to yaoi or reading yaoi). 
+pls don't attack me for the song above... and no i'm not attention seeking for this. if u don't know why i'm asking to get **NOT** jumped: the song talks about being religious but also coping with thoughts (sexual/hypersexual) they (ahem, more specific. MIKU) cannot help but think of (g00ning to yaoi or reading yaoi). 
 
 I'm hypersexual, without a doubt. if you know me THE WELL-WELL kind or ur my beloved boyfriend (hehe.. hii *winks*) then you know how I act. this doesn't include: AIE, nicole/candie, mizuki/star, asher, and more. (maybe sometimes I'm freaky with them??... I'm not aware tho...) but please don't think of me as a weirdo, I DO use tone tags when saying something freaky/suggestive/creepy! + I'm very religious despite sinning. 
 
