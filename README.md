@@ -76,6 +76,8 @@ this individual does NOT share yumes NOR real partner ( yes, I'm polysexual. but
 
 this individual may be stubborn to listen to BASIC mental/physical needs. ( ex: showering, eating, sleeping, etc/more . funfact: I sweat very fast for some god knows what reason bro ) 
 
+this individual blocks people who have the same interest on a character (or rather, is posessive of a character)
+
 🏳 . . . 
 
 I deeply apologise if we've argued before or if I creeped/creep you out!! 
