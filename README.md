@@ -14,7 +14,7 @@
 
 4. stereotypers and 'autistic is zilly!!' people ( ex: " ooUhoH dazai is so silly and handsome!! his trauma makes him so tough!! " AND... " oouUUGH.. I hit my ankle and now I'm so zilly!! uwu.. so autistic... " ) 
 
-5. etc, there's more I'll add in the future 
+5. aie/ayca DNI
 
 - 
 
