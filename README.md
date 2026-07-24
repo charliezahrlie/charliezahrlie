@@ -1,3 +1,5 @@
+AIE/ayca and his supporters stay away from me and dni.
+
 [ readme with no gifs. I lost motivation in doing all that shit 💔 ] ▪︎ . . . 
 
 ꫝꪱׁׅ ! ( hehe, I follow back in spam follow account! @chocolate_dr1p !!! )
