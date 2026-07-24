@@ -1,4 +1,4 @@
-AIE/ayca and his supporters stay away from me and dni.
+***AIE/ayca and his supporters stay away from me and dni.***
 
 [ readme with no gifs. I lost motivation in doing all that shit 💔 ] ▪︎ . . . 
 
