@@ -92,7 +92,9 @@ this individual may be _stubborn_ to listen to *BASIC mental/physical needs.* ( 
 
 this individual blocks people who have the same interest on a character (or rather, is posessive of a character)
 
-🏳 . . . 
+-
+farewell ♡
+-
 
 I deeply apologise if we've argued before or if I creeped/creep you out!! 
 
