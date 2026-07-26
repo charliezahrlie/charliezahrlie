@@ -59,6 +59,8 @@ INT ᥣׁׅ֪ꪱׁׅꜱt
 
 . . . 
 
+<img width="540" height="304" alt="Image" src="https://github.com/user-attachments/assets/0e3799ce-b684-483d-bb2c-67c3f7af0028" />
+
  ꪱׁׅɳ⨍ᨵׁׅ ♡ ab me !
  -
 
@@ -93,5 +95,7 @@ this individual blocks people who have the same interest on a character (or rath
 🏳 . . . 
 
 I deeply apologise if we've argued before or if I creeped/creep you out!! 
+
+<img width="500" height="281" alt="Image" src="https://github.com/user-attachments/assets/329a77f4-3751-48ac-9bcf-afa8cc9f123e" />
 
 goodbye, fellow reader ♡
