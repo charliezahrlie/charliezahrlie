@@ -2,6 +2,8 @@
 
 [ welcome to my readme! ♡ I hope we get along !! ]
 
+- Please keep in mind, This is only for ***Ponytown*** Users.
+what is ponytown? it's a public game where I socialise in. so if you came from discord link/connect, this may be either very confusing or weird. I do apologise for all the drama I'm in **sigh**...
 
 ꫝꪱׁׅ ! ( hehe, I follow back in spam follow account! @chocolate_dr1p !!! )
 -
