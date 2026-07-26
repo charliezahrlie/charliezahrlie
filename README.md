@@ -46,7 +46,7 @@ INT ᥣׁׅ֪ꪱׁׅꜱt
 
  ꪱׁׅɳ⨍ᨵׁׅ ♡ ab me !
 
-https://en.pronouns.page/account
+https://en.pronouns.page/@charlie.zaharah
 
 I am a sadochist and a pessimistic which i highly struggle with.
 
