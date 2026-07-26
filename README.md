@@ -2,6 +2,8 @@
 
 [ welcome to my readme! ♡ I hope we get along !! ]
 
+<img width="500" height="281" alt="Image" src="https://github.com/user-attachments/assets/dc15f341-56a0-4fa0-a67d-cf31d7b27eab" />
+
 - Please keep in mind, This is only for ***Ponytown*** Users.
 what is ponytown? it's a public game where I socialise in. so if you came from discord link/connect, this may be either very confusing or weird. I do apologise for all the drama I'm in **sigh**...
 
