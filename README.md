@@ -32,51 +32,24 @@ INT ᥣׁׅ֪ꪱׁׅꜱt
 
 - 
 
-*ꪱׁׅ don't know wꫝat to put here, so ꫝere's 1 verses of the song that represents me most /i relate to ꫝeavily !* 
-
--
-( TW: perhaps a bit suggestive? I don't want to disturb you ml!/p )
-- 
-
-( confessions of a rotten girl ) by 《 sawtone 》 . ♡ 
-
-. . . 
-
-I swore I'd never sin again (amen)
-But my patience's running thin (amen)
-Student council breathing down my neck
-I wonder if they're hiding from me
-Forbidden fruits before my eyes (amen)
-And a taste that's so divine (amen)
-My regrets rewriting history
-I'm a sad, pathetic girl 
-
-. . . 
-
-pls don't attack me for the song above... and no i'm not attention seeking for this. if u don't know why i'm asking to get **NOT** jumped: the song talks about being religious but also coping with thoughts (sexual/hypersexual) they (ahem, more specific. MIKU) cannot help but think of (g00ning to yaoi or reading yaoi). 
-
-I'm hypersexual, without a doubt. if you know me THE WELL-WELL kind or ur my beloved boyfriend (hehe.. hii *winks*) then you know how I act. this doesn't include: AIE, nicole/candie, mizuki/star, asher, and more. (maybe sometimes I'm freaky with them??... I'm not aware tho...) but please don't think of me as a weirdo, I DO use tone tags when saying something freaky/suggestive/creepy! + I'm very religious despite sinning. 
-
 . . . 
 
 (extra ? ish ) ꪱׁׅɳ⨍ᨵׁׅ
 
 
-bunny regressor (don't jump me pls) . 
+*bunny regressor* (don't jump me pls) . 
 
-♡ 
+*akutagawa* (bungo stray dogs) : **FICTION-** _kinnie_ 
 
-akutagawa (bungo stray dogs) : FICTION- kinnie 
+t*ecchou/tetchou suehiro* (bungo stray dogs) : **FICTION-** _kinnie_
 
-tecchou/tetchou suehiro (bungo stray dogs) : FICTION- kinnie 
+this individual has a *hard time with understanding other's feelings/emotions or overthinks alot!*
 
-this individual has a hard time with understanding other's feelings/emotions or overthinks alot! 
+this individual gets _angry easily_ with just a **few words**
 
-this individual gets angry easily with just a few words ( oops.. not my fault? ) 
+this individual does **NOT** share yumes **NOR** real partner ( yes, I'm polysexual. but keep in mind I'm not yet in an open relationship until my _boyfriend_ says so or wants to. ) **NOR** (any) kinnies. 
 
-this individual does NOT share yumes NOR real partner ( yes, I'm polysexual. but keep in mind I'm not yet in an open relationship until my boyfriend says so or wants to. ) NOR (any) kinnies. 
-
-this individual may be stubborn to listen to BASIC mental/physical needs. ( ex: showering, eating, sleeping, etc/more . funfact: I sweat very fast for some god knows what reason bro ) 
+this individual may be _stubborn_ to listen to *BASIC mental/physical needs.* ( ex: showering, eating, sleeping, etc/more . funfact: I sweat very fast for some god knows what reason bro ) 
 
 this individual blocks people who have the same interest on a character (or rather, is posessive of a character)
 
