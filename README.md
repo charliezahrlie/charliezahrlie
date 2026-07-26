@@ -1,10 +1,14 @@
 ***AIE/ayca and his supporters stay away from me and dni.***
 
-[ readme with no gifs. I lost motivation in doing all that shit 💔 ] ▪︎ . . . 
+[ welcome to my readme! ♡ I hope we get along !! ]
+
 
 ꫝꪱׁׅ ! ( hehe, I follow back in spam follow account! @chocolate_dr1p !!! )
+-
 
 • DNI ᥣׁׅ֪ꪱׁׅꜱt 
+
+***《 if you have an issue with my opinions/dnis, then I respectfully ask you block me 》***
 
 1. *basic* **DNI** 
 
@@ -16,7 +20,13 @@
 
 5. aie/ayca DNI
 
+I hope all of you learn from your mistakes.
+
 - 
+
+<img width="268" height="300" alt="Image" src="https://github.com/user-attachments/assets/f541f6a0-a612-4d8a-93df-e3bc18ea0adc" />
+
+-
 
 INT ᥣׁׅ֪ꪱׁׅꜱt 
 
@@ -34,8 +44,19 @@ INT ᥣׁׅ֪ꪱׁׅꜱt
 
 . . . 
 
-(extra ? ish ) ꪱׁׅɳ⨍ᨵׁׅ
+ ꪱׁׅɳ⨍ᨵׁׅ ♡ ab me !
 
+https://en.pronouns.page/account
+
+I am a sadochist and a pessimistic which i highly struggle with.
+
+I'm **heavily** against *Generative.Ai* and ONLY Gen.Ai
+
+I've played ponytown for atleast 4(?) years !!!
+
+my favorite ( color ) is *red and green*
+
+I absolutely *adore* nagito komaeda from _Danganronpa V2: Goodbye Despair!_
 
 *bunny regressor* (don't jump me pls) . 
 
