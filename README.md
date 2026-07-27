@@ -63,6 +63,8 @@ INT ᥣׁׅ֪ꪱׁׅꜱt
 
 <img width="540" height="304" alt="Image" src="https://github.com/user-attachments/assets/0e3799ce-b684-483d-bb2c-67c3f7af0028" />
 
+# https://charliekomaeda.straw.page . main straw
+
  ꪱׁׅɳ⨍ᨵׁׅ ♡ ab me !
  -
 
