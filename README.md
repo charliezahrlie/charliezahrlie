@@ -47,7 +47,7 @@ I hope all of you learn from your mistakes.
 
 INT ᥣׁׅ֪ꪱׁׅꜱt 
 
-1. gore/dark/horror/etc-enjoyers ( or to put it more in a specific-ish way... um... don't jump me but... SADISTS... THE WIND IS LOUD YALL I PROMISE ) 
+1. gore/dark/horror/etc-enjoyers
 
 2. people who are kind, and caring and genuinely is a sweetheart... please add me... PLEASE. 
 
@@ -104,6 +104,7 @@ farewell ♡
 
 I deeply apologise if we've argued before or if I creeped/creep you out!! 
 
+ahh while on the way PLEEAAASSEE COMPLIMENT MEEE OMG.GMGGOGKMGMG IM THIRSTING FOR INTS AND NICE APROACHES 😭😭
 <img width="500" height="281" alt="Image" src="https://github.com/user-attachments/assets/329a77f4-3751-48ac-9bcf-afa8cc9f123e" />
 
 goodbye, fellow reader ♡
