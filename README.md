@@ -104,7 +104,7 @@ farewell ♡
 
 I deeply apologise if we've argued before or if I creeped/creep you out!! 
 
-ahh while on the way PLEEAAASSEE COMPLIMENT MEEE OMG.GMGGOGKMGMG IM THIRSTING FOR INTS AND NICE APROACHES 😭😭
+ahh while on the way PLEEAAASSEE COMPLIMENT MEEE OMG.GMGGOGKMGMG IM THIRSTING FOR INTS AND NICE APROACHES AND PLS GIVE ME MOTIVATIONS TO ADD OVERLAYS HEREEEEE!! (in straw...!!) 😭😭
 <img width="500" height="281" alt="Image" src="https://github.com/user-attachments/assets/329a77f4-3751-48ac-9bcf-afa8cc9f123e" />
 
 goodbye, fellow reader ♡
