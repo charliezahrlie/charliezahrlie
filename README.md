@@ -1,4 +1,4 @@
-***AIE/ayca and his supporters stay away from me and dni.***
+***AIE/ayca and his supporters stay away from me and dni.*** (https://docs.google.com/document/d/1z7XG7_9Unpiq1nxFO6gPjLu2jZGU6alOTRTNzeXPsVU/edit?usp=drivesdk)
 
 AAAHHHH TYSM FOR PT HALL OF MEDIA FOR ADDING ME IN AS PONYTOWN'S NAGITO KOMAEDA!!!
 
