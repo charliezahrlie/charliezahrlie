@@ -1,6 +1,6 @@
 ***AIE/ayca and his supporters stay away from me and dni.*** (https://docs.google.com/document/d/1z7XG7_9Unpiq1nxFO6gPjLu2jZGU6alOTRTNzeXPsVU/edit?usp=drivesdk)
 
-AAAHHHH TYSM FOR PT HALL OF MEDIA AND PT OF AWESOMENESS FOR ADDING ME IN AS PONYTOWN'S NAGITO KOMAEDA!!!
+AAAHHHH TYSM FOR PT HALL OF MEDIA AND PT OF AWESOMENESS AND PT CONTRIBUTERS FOR ADDING ME IN AS PONYTOWN'S NAGITO KOMAEDA!!!
 
 [ welcome to my readme! ♡ I hope we get along !! ]
 
