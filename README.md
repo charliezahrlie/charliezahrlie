@@ -26,7 +26,7 @@ what is ponytown? it's a public game where I socialise in. so if you came from d
 
 4. stereotypers and 'autistic is zilly!!' people ( ex: " ooUhoH dazai is so silly and handsome!! his trauma makes him so tough!! " AND... " oouUUGH.. I hit my ankle and now I'm so zilly!! uwu.. so autistic... " ) 
 
-5. aie/ayca DNI ( document/callout is *PRIVATE* , but basically they're problematic too )
+5. aie/ayca DNI ( https://docs.google.com/document/d/16ogFjq3LMp4CT2Ty7MUw5njRZ3uvjMBExdhDkS03nAA/edit?usp=drivesdk )
 
 6. ***GENERATIVE*** Ai users
 
