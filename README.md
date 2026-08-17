@@ -7,3 +7,6 @@
 nagito(DANG) and kokichi(DANG) kin-sharing is allowed ♡
 
 sebastian(blackbutler),chuuya(bsd) lovers/yumes and tetchou,dazai,akutagawa,ango (all bsd) fictionkin nonsharing ^_^
+
+
+ponytown's nagito
