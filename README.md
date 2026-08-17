@@ -10,3 +10,5 @@ sebastian(blackbutler),chuuya(bsd) lovers/yumes and tetchou,dazai,akutagawa,ango
 
 
 ponytown's nagito
+
+please call me werty and much preferred if u went to @shinjuwerty
